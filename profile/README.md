@@ -2,7 +2,7 @@
 
 <div align="center">
 
-# AQLITHOS
+# AQLITHOS (PRIVATE) LIMITED
 
 ### THINK. BUILD. INSPIRE.
 
